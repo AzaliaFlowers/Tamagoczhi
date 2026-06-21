@@ -1,0 +1,1 @@
+proszę działaj
